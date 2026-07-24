@@ -5,5 +5,5 @@
   <img src="https://i.postimg.cc/25v6jm4D/1784922398023.png" width="100%">
 </p> 
 <p align="center">
-  <img src="https://pin.it/ou15BMThT" width="400"> 
+  <img src="https://pin.it/2vVlAE91X" width="400"> 
 </p>
