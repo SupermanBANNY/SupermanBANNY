@@ -20,5 +20,5 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/xC8zP8hN/In-Shot-20260724-235423180.png" width="100%">
+  <img src="https://i.postimg.cc/1RJNjGsq/In-Shot-20260725-001031401.png" width="100%">
 </p>
